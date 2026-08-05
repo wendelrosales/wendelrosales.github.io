@@ -1,1 +1,0 @@
-# wendelrosales.github.io
